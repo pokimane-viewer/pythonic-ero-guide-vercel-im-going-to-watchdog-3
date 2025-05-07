@@ -7,3 +7,5 @@
 ![GqXQZ8fWQAAmaTn](https://github.com/user-attachments/assets/7f2a2397-0dd6-4eec-be51-b501cf0107cd)
 
 ![GqXQqP2XYAAEp7O](https://github.com/user-attachments/assets/1afd340e-fd57-422f-9913-d5fd95763169)
+
+you disgusting americans think you're that good that people need you at all? 白骑士抽搐定义
